@@ -1,4 +1,4 @@
-pericardiums
-Saussure
-neon
-rhapsodic
+perspective's
+understandably
+urchin's
+bestiality's
