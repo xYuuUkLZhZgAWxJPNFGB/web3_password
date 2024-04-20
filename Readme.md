@@ -1,4 +1,4 @@
-perspective's
-understandably
-urchin's
-bestiality's
+enthusiastic
+vacillations
+hooey
+gimleting
