@@ -1,4 +1,4 @@
-enthusiastic
-vacillations
-hooey
-gimleting
+haughtiness
+brownstones
+apogee
+repudiate
